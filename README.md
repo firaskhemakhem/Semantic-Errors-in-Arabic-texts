@@ -1,1 +1,0 @@
-# Semantic-Errors-in-Arabic-texts
